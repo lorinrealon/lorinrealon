@@ -1,6 +1,6 @@
 ## Hi, I'm Lorin!
 Computer Science Student @ De La Salle Lipa | Aspiring Data Scientist  
-📍 Lipa City, Batangas, Philippines • 🔗 [LinkedIn](https://www.linkedin.com/in/lorin-realon-4a12a2450/) • ✉️ [Email](mailto:lorin.angeles.realon@gmail.com)
+📍 Lipa City, Batangas, Philippines • 🔗 LinkedIn Profile: [LinkedIn](https://www.linkedin.com/in/lorin-realon-4a12a2450/) • ✉️ Email: [lorin.angeles.realon@gmail.com](mailto:lorin.angeles.realon@gmail.com)
 
 ---
 
